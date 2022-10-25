@@ -1,4 +1,4 @@
-# Replace with recipe name: Sheet-Pan Gnocchi With Mushrooms and Spinach
+# Sheet-Pan Gnocchi With Mushrooms and Spinach
 
 ## Servings: 4
 
