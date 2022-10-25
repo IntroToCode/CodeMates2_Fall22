@@ -16,8 +16,7 @@
 1 teaspoon honey
 1 tablespoon unsalted butter
 
-
-
+Note: If you are allergic to mushrooms, please use asparagus instead!
 
 ## Equipment needed:
 
