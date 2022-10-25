@@ -1,5 +1,16 @@
+# Breakfast BLT!
 
+## Ingredients:
 
+4 slices bacon
+
+2 leaves lettuce
+
+2 slices tomato
+
+2 slices bread, toasted
+
+1 tablespoon mayonnaise
 
 
 ## Equipment needed:
