@@ -39,7 +39,6 @@ melted and glazy. Eat with the remaining sauce on the side.
 
 
 ### Notes:
-
 NYT article of vegetarian recipes that contains this one: https://www.nytimes.com/newsletters/the-veggie
 
 ### Codemates #
