@@ -2,7 +2,7 @@
 
 ## Servings: 4
 
-## Time to prepare: 35 minutes
+## Time to prepare: 45 minutes
 
 ## Ingredients: 10 items
 1 pound mixed mushrooms, such as shiitake, oyster, maitake or cremini, trimmed and quartered (or cut into 1-inch pieces, if large)
